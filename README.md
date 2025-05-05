@@ -1,0 +1,1 @@
+# QuarkXPress-activated-d3
